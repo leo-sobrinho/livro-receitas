@@ -28,3 +28,5 @@
 5. Incorpore o creme de leite e retire do fogo antes de ferver.
 
 6. Sirva com arroz branco e batata palha.
+
+Fonte da Receita: https://www.tudogostoso.com.br/receita/2462-strogonoff-de-frango.html
